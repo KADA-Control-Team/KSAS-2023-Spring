@@ -1,5 +1,7 @@
 # KSAS-2023-Spring
 
+https://ksas.or.kr/Conference/ConferenceView.asp?AC=0&CODE=CC20230101
+
 춘추계학술대회
 춘계학술대회 안내문
 본 학회 2023년도 춘계학술대회를 아래와 같이 개최할 예정이오니, 회원 제위의 적극적인 참여와 많은 논문 발표가 있기를 바랍니다. 
